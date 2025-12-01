@@ -1,1 +1,0 @@
-Pictures and Some Styling is done by using AI, Thanks.
